@@ -10,12 +10,12 @@
 
 
 
-### XNXCODE RESMI
+### 
 ![TextCandy_1645387854093 png](https://photos.app.goo.gl/2JQcuXkekLt1cGD66.jpg)
 
 
 
-### [Sebuah Server Untuk Pengecoran :v]()
+### [Janggan lupa Sholat ☝️]()
 <!--
 **Putra-XD/Putra-XD** adalah repositori _special_ karena `README.md` (file ini) muncul di profil GitHub Anda.
 
