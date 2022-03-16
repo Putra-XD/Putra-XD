@@ -2,11 +2,11 @@
 
 ### Kontak & Media Sosial
 - You Tube : [Farikha Risqiana Putra]()
-- WhatsApp : [082223578245]()
+- WhatsApp : [Private]()
 - Facebook : [100009151670737]()
 
 ### Ngoding [Ngocok Berdiri]() </>
-![IMG_20211223_023941](https://user-images.githubusercontent.com/92802033/151725951-15ac7faa-03a0-4fdf-bc42-2550796a1a62.jpg)
+![https://photos.app.goo.gl/2JQcuXkekLt1cGD66)
 
 
 
