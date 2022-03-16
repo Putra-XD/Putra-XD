@@ -1,19 +1,11 @@
-### Halo Friends, [Putra-XD]() Ada Disini !
+### Halo Friends, [Putra-XD]() Im Here !
 
 ### Kontak & Media Sosial
 - You Tube : [Farikha Risqiana Putra]()
 - WhatsApp : [Private]()
 - Facebook : [100009151670737]()
 
-### Ngoding [Ngocok Berdiri]() </>
-![https://photos.app.goo.gl/2JQcuXkekLt1cGD66)
-
-
-
-### 
-![TextCandy_1645387854093 png](https://photos.app.goo.gl/QcKiqQKsYCxCJXyu7)
-
-
+### Selamat Datang
 
 ### [Janggan lupa Sholat >_<]()
 <!--
