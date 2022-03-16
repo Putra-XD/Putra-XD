@@ -11,7 +11,7 @@
 
 
 ### XNXCODE RESMI
-![TextCandy_1645387854093 png](https://user-images.githubusercontent.com/92802033/158568770-86c76f29-75c0-4449-88e8-6736018f5474.png)
+![TextCandy_1645387854093 png](https://photos.app.goo.gl/2JQcuXkekLt1cGD66.jpg)
 
 
 
