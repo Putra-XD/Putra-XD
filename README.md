@@ -1,16 +1,22 @@
-### Hi World 👋
+### Halo Friends, [Putra-XD]() Ada Disini !
 
+### Kontak & Media Sosial
+- You Tube : [Farikha Risqiana Putra]()
+- WhatsApp : [082223578245]()
+- Facebook : [100009151670737]()
+
+### Ngoding [Ngocok Berdiri]() </>
+![IMG_20211223_023941](https://user-images.githubusercontent.com/92802033/151725951-15ac7faa-03a0-4fdf-bc42-2550796a1a62.jpg)
+
+
+
+### XNXCODE RESMI
+![TextCandy_1645387854093 png](https://user-images.githubusercontent.com/92802033/158568770-86c76f29-75c0-4449-88e8-6736018f5474.png)
+
+
+
+### [Sebuah Server Untuk Pengecoran :v]()
 <!--
-**Putra-XD/Putra-XD** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**Putra-XD/Putra-XD** adalah repositori _special_ karena `README.md` (file ini) muncul di profil GitHub Anda.
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Berikut adalah beberapa ide untuk Anda mulai:
