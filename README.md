@@ -1,7 +1,7 @@
 ### Halo Friends, [Putra-XD]() Im Here !
 
 ### Kontak & Media Sosial
-- You Tube : [Farikha Risqiana Putra]()
+- You Tube : [PUTRA-XD]()
 - WhatsApp : [Private]()
 - Facebook : [100009151670737]()
 
